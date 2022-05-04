@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Danielle-Leal
 - 👀 I’m interested in  ficar de olhos no pessoal da área tech
 - 🌱 I’m currently atuando como tech recruiter
-- 💞️ I’m bucando conhecer pessoas, amooo
+- 💞️ I’m bucando  ir conhecendo mais e mais pessoas, amoo
 - 📫 How to reach me , você pode mandar um e-mail para: danielleluizareisdaroleal@gmail.com e da uma olhadinha no LinkedIn: https://www.linkedin.com/in/danielle-leal-26843321a/
 
 <!---
